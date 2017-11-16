@@ -12,3 +12,5 @@ Arretez de faire des copié/collé des autres histoires! C'est pas drôle!
 
 
 MIKE WAS THERE
+
+un deux trois canards
