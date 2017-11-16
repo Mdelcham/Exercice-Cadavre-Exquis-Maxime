@@ -12,3 +12,5 @@ Arretez de faire des copié/collé des autres histoires! C'est pas drôle!
 
 
 MIKE WAS THERE
+Who is Mike? reveal yourself - shout out loud!
+**here are some smiles for better mood** :/ :) :*
