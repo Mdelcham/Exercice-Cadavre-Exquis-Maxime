@@ -12,5 +12,10 @@ Arretez de faire des copié/collé des autres histoires! C'est pas drôle!
 
 
 MIKE WAS THERE
+<<<<<<< HEAD
 Who is Mike? reveal yourself - shout out loud!
 **here are some smiles for better mood** :/ :) :*
+=======
+
+un deux trois canards
+>>>>>>> 215b84869f9326ac62996b6111b54ac0c2c9f86c
