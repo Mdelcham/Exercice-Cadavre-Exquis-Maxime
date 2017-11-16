@@ -19,3 +19,9 @@ Who is Mike? reveal yourself - shout out loud!
 
 un deux trois canards
 >>>>>>> 215b84869f9326ac62996b6111b54ac0c2c9f86c
+
+*Il était une fois, dans un pays lointain, un groupe d'irréductibles* **__codeurs.__**
+
+Ils possédaient un **secret** jalousement gardé... **__La potion BeCode!__**
+
+La recette de sa préparation demeurait connue par seulement 2 individus du groupe, les 2 *Cydruis*, car cet ainsi qu'ils se faisaient appelées, **Emily** et **Alexandre.**
