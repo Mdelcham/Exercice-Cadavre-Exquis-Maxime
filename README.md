@@ -7,3 +7,5 @@ Je vérifiais juste si mon clavier était bien branché... Et oui, il marchait b
 Dans une galaxie très lointaine, deux patates s'affrontent.
 
 Elles s'affrontent pour la suprématie de la planète compote. Personne ne sait qui sortira vainqueur.
+
+Arretez de faire des copié/collé des autres histoires! C'est pas drôle!
