@@ -25,3 +25,19 @@ un deux trois canards
 Ils possédaient un **secret** jalousement gardé... **__La potion BeCode!__**
 
 La recette de sa préparation demeurait connue par seulement 2 individus du groupe, les 2 *Cydruis*, car cet ainsi qu'ils se faisaient appelées, **Emily** et **Alexandre.**
+
+Ces fameux *Cydruis* appliquaient les théories quantiques quant à la communication non-verbale d'énergie nouvelle pour développer leur brevage qui permet de fournir de manière temporaire une logique machinale dans un cerveau humain.
+
+Turlututu chapeau pointu!
+
+Supercalifragilisticexpialidocious
+
+The Invincible Iron Man
+=======================
+
+
+**Iron Man** (*littéralement l'Homme de Fer*) est un super-héros de comic books créé en 1963 par **Stan Lee** pour **Marvel Comics**. Apparu pour la première fois dans Tales Of Suspense #39, la série était scénarisée par *Larry Lieber* et dessinée par Don Heck. À partir de 1968, le personnage a eu son propre comic book, *The Invincible Iron Man*, qui a été publié par **Marvel** jusqu'en 1996 avec le no 332.
+
+Il est aussi apellé l'homme-boîte et si il se crash alors ?? Ben l'homme-let *TAtaTAtaaaaaaaaTAta*
+
+Avez-vous entendu ces bruits?
