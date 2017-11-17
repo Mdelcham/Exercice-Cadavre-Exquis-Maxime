@@ -27,3 +27,5 @@ Ils possédaient un **secret** jalousement gardé... **__La potion BeCode!__**
 La recette de sa préparation demeurait connue par seulement 2 individus du groupe, les 2 *Cydruis*, car cet ainsi qu'ils se faisaient appelées, **Emily** et **Alexandre.**
 
 Ces fameux *Cydruis* appliquaient les théories quantiques quant à la communication non-verbale d'énergie nouvelle pour développer leur brevage qui permet de fournir de manière temporaire une logique machinale dans un cerveau humain.
+
+Turlututu chapeau pointu!
